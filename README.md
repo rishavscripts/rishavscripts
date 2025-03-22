@@ -16,6 +16,7 @@
 - 📫 How to reach me **rishavstudy2004@gmail.com**
 
 - ⚡ Fun fact **Always keen to expand my horizons and Passionate about creating solutions that make a difference, whether through AI, algorithms, or clever problem-solving.**
+- Hobbies - 📸 Photography , 🎵 Listening Music
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
